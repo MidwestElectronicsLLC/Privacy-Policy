@@ -1,4 +1,4 @@
-# Privacy-Policy
+# Privacy Policy
 
 Wheat Penny Value Price Guide Privacy Policy
 
